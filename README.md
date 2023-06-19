@@ -37,4 +37,7 @@ Please tell us your favorite ice cream
 
 * GARIGARIKUN
 
+* Moo(vanilla)
+
 * Gelato (any kind, but strawberry is best)
+
