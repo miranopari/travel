@@ -10,3 +10,5 @@
 ・information
 情報領域一択だろうが！
 bioscience
+・information
+
