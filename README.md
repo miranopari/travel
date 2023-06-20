@@ -20,7 +20,7 @@ example)平城京　Heijokyo
 ・Louvre Museum
 
 
-・
+・おもちゃ王国
 
 ・
 
