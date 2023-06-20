@@ -26,7 +26,7 @@ example)平城京　Heijokyo
 ・シリコンバレー
 
 
-・
+・Labuan Bajo
 
 ・
 
