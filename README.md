@@ -17,6 +17,8 @@ example)平城京　Heijokyo
 
 ・ ワイキキ Waikiki
 
+・Louvre Museum
+
 
 ・
 
