@@ -25,8 +25,13 @@ example)平城京　Heijokyo
 
 ・シリコンバレー
 
+・沖縄
+
+・Labuan Bajo
+
 
 ・ Hokkaido
+
 
 ・
 
