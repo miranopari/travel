@@ -30,6 +30,9 @@ example)平城京　Heijokyo
 ・Labuan Bajo
 
 
+・ Hokkaido
+
+
 ・
 
 ・
