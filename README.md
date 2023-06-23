@@ -35,4 +35,8 @@ Please add to the list below.
 - Neon Genesis Evangelion
 - onepiece
 - You は何しに日本へ？ Why did you come to Japan?
-
+- ZIP
+- BuraTamori
+- Code Geass
+- syabekuri 007
+- Precure
