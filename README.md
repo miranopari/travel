@@ -33,7 +33,7 @@ example)平城京　Heijokyo
 ・ Hokkaido
 
 
-・
+・ 種子島
 
 ・
 
