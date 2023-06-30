@@ -13,3 +13,4 @@ bioscience
 ・information
 ・情報
 ・バイオしか勝たん
+・情報領域！(知らんけど)
