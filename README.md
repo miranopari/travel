@@ -12,4 +12,4 @@
 bioscience
 ・information
 ・情報
-
+・バイオしか勝たん
