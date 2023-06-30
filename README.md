@@ -13,3 +13,4 @@ bioscience
 ・information
 ・情報
 ・バイオしか勝たん
+・そもそもバイオが女子の絶対数多そう
